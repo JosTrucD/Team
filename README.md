@@ -1,3 +1,1 @@
-"# Team" 
-TESTING
-제발 되라 좀
+Hi every one. I am JosTruc. Nice to meet you!
